@@ -1,4 +1,4 @@
-### I'm Divya Vikas.
+### Hi there, I'm Divya Vikas.
 
 ## I'm a Data Analyst and a Teacher!!
 
